@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Brigh24
 - 👀 I’m interested in ... web designer 
-- 🌱 I’m currently learning ...newbi
+
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
